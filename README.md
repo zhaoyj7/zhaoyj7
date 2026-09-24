@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+![原神牛逼](https://hoyocard.qhy04.com/gs/detail/rand/331118657.png)
 <!--
 **zhaoyj7/zhaoyj7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
